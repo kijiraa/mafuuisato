@@ -3,11 +3,6 @@
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
-Dear diary
-
- youdontknowhim - oh my God man i wanted to just write this for him so ignore if you like. i genuinely have had a crush on you since 2 years 😭 i know you confessed twice but my ass was stupid back then. im abit obsessed but not really unhealthy. i love the way you constantly stare at me, or get really shy/nervous around me. You don't know this, but i really like you too! ive liked you since 7/12/24 but i cant get myself to confess to you next. I really like the way you put on a headband during gym time. I really like how easygoing you are to your friends. i know I never really talked to you, but I seriously still know so much 'bout you. PLSPLS im begging you to get my hints. Ive asked my friends to ask you if ur single or not yet you STILL say yes but dont get it. your so dumbheaded its cute. I feel like i will never get over you at this point. I know every small things you do. you like playing football.. you often cry because your sensetive.. and you dont have many friends. the time you confessed you told me no one else would like me. thats actually true by now. I really think we are made for each other. I remember how you broke up with your gf for me, i found that sweet back then. i remember that time we worked on a project and you smiled so hard. i remember back then when we walked together and you were also blushing. Yet still to this day, im afraid you might like someone else- or maybe im not good enough. i really hope one day you'll realise how much you mean to me, N.
- 
- Written 12/9/26
 
  
 non - pt
